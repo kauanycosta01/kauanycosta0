@@ -1,1 +1,4 @@
-# kauanycosta0
+-**Bem vindos ao meu perfil!**
+-Meu nome é: Kauany da Costa
+-Sou aluna do colégio Estadual Alvino Schelbauer
+-Sou aluna da 1º série A
